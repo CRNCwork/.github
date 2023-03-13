@@ -26,5 +26,5 @@ Never HATE, either yourself or others. Learn to FORGIVE without forgetting lesso
 
 Never WORRY about things out of your control. Practice minimalism. Ditch any vulnerability that causes worry, eg give stuff away.
 
-LEAD. Refuse to ever follow. Do not waste time worrying about what others think. Minimize your circle. Ditch the victims, worriers, materialists.
+LEAD. Refuse to ever follow. Who cares what others think! Minimize your circle. Ditch the victims, worriers, materialists.
 
