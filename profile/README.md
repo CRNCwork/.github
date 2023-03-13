@@ -1,4 +1,4 @@
-# When do do not manage your own time, you become a slave.
+# When you do not manage your own time, you become a slave.
 
 ***Discipline EQUALS freedom.***
 
