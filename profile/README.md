@@ -10,17 +10,17 @@ Minimize your circle. Ditch victims, worriers, materialists. Refuse to ever asso
 
 3) Pray without ceasing. Synch your will to your Creator's. Focus with reverent intent to fully OWN the DISCIPLINE. 
 
-4) Practically, we manage the tasks of our day with a time blocking methodology to predictably get our tasks done.
+4) Your method for setting goals, planning tasks becomes entirely your design, try the 30 min time-block to start.
 
-5) Your method for setting goals, planning tasks becomes entirely your design, try the 30 min time-block to start.
+5) 30 minutes is split into a 25 min MENTAL focus, 4 min focused PHYSICAL exercise Tabata and two 30 sec readjusts.
 
-6) 30 minutes is split into a 25 min MENTAL focus, 4 min focused PHYSICAL exercise Tabata and two 30 sec readjusts.
+6) Plan with reverence; set aside one 30 min block to *sharpen the axe* or optimize each of the other time blocks.
 
-7) Plan with reverence; set aside one 30 min block to *sharpen the axe* or optimize each of the other time blocks.
+7) Devote one entire 30 minute block each day to housekeeping or 5S-ing your work environment; set things in order.
 
-8) Devote one entire 30 minute block each day to housekeeping or 5S-ing your work environment; set things in order.
+8) With experience, optimize the time-blocking details to predictably develop plans, set agendas, get tasks done.
 
-9) Cheat! Steal lifehacks that work! Continuously experiment with systems of organization and time mgmt approaches.
+9) Now Cheat! Steal lifehacks that work! Continuously experiment with systems of organization and time mgmt approaches.
 
 10) Stop weakening the body; remove chairs, avoid most sitting; continuously strengthen your [musculoskeletal system](https://en.wikipedia.org/wiki/Human_musculoskeletal_system).
 
