@@ -18,9 +18,9 @@ Minimize your circle. Ditch victims, worriers, materialists. Refuse to ever asso
 
 7) Devote one entire 30 minute block each day to housekeeping or 5S-ing your work environment; set things in order.
 
-8) With experience, optimize the time-blocking details to predictably develop plans, set agendas, get tasks done.
+8) Based on experience, optimize the time-blocking details to predictably develop plans, set agendas, get tasks done.
 
-9) Now Cheat! Steal lifehacks that work! Continuously experiment with systems of organization and time mgmt approaches.
+9) Always be flanking! Cheat! Steal lifehacks that work! Experiment with new systems of time mgmt and organization.
 
 10) Stop weakening the body; remove chairs, avoid most sitting; continuously strengthen your [musculoskeletal system](https://en.wikipedia.org/wiki/Human_musculoskeletal_system).
 
