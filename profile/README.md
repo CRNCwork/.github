@@ -6,7 +6,7 @@ Minimize your circle. Ditch victims, worriers, materialists. Refuse to ever asso
 
 1) Time's the ONLY asset we have. You get 86400 secs/day, 30 or 31 days/month. Plan each month to know your WHY.
 
-2) Avoid idiot compassion. Never HATE, either yourself or others. Learn to FORGIVE without forgetting lessons learned.
+2) Avoid idiot compassion. Learn to FORGIVE without forgetting lessons learned. Never HATE, either yourself or others.
 
 3) Pray without ceasing. Synch your will to your Creator's. Focus with reverent intent to fully OWN the DISCIPLINE. 
 
