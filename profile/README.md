@@ -2,7 +2,7 @@
 
 ***Discipline EQUALS freedom.*** LEAD. *Refuse to ever follow or be influenced by celebrities.* Stop caring what the follower-types think ... LEAD!
 
-Minimize your circle. Ditch victims, worriers, materialists. Refuse to ever associate with people governed by their fears. We LEAD by example; we work on the ventures, ideas and projects are within our control. Each month, throughout the year, we try to focus particularly on one area of our guru DISCIPLINE, but we use and try to strengthen each one of these areas of DISCIPLINE with every second of every day.
+Minimize your circle. Ditch victims, worriers, materialists. Refuse to ever associate with people governed by fears or the pervasive #MeToo culture of sheep-like victimhood. We LEAD by example; we work on the science, art, entrepreneurial ventures, philanthropic projects and ideas are within our control. Each month, throughout the year, we try to focus particularly on one area of our guru DISCIPLINE, but we use and try to strengthen each one of these areas of DISCIPLINE with every second of every day.
 
 1) Time's the ONLY asset we have. You get 86400 secs/day, 30 or 31 days/month. Plan each month. Become your own guru.
 
