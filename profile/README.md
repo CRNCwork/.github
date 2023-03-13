@@ -4,7 +4,7 @@
 
 1) Your time is the ONLY asset you have in life. You get 86400 secs/day. Plan each year to become your own guru.
 
-2) As you go thru each day CONTINUOUS COMPOUND mental discipline; focus on the NOWNESS of improvement discipline.
+2) Never HATE, either yourself or others. Learn to FORGIVE without forgetting lessons learned from unpleasantness.
 
 3) Pray without ceasing to synch your will to THE IDEAL. Focus with intent to OWN the DISCIPLINE of every second. 
 
@@ -22,6 +22,6 @@
 
 10) Stop weakening the body; remove chairs, avoid most sitting; continuously strengthen your [musculoskeletal system](https://en.wikipedia.org/wiki/Human_musculoskeletal_system).
 
-11) Never HATE, either yourself or others. Learn to FORGIVE without forgetting lessons learned from unpleasantness.
+11) Minimalism is gratitude. Ditch all vulnerabilities causing worry. Give stuff away; don't be owned by your stuff.
 
-12) Practice minimalism. Ditch any sort of vulnerability causing worry. Give stuff away; don't be owned by your stuff.
+12) As you go thru each day CONTINUOUS COMPOUND mental discipline; focus on the NOWNESS of improvement discipline.
