@@ -1,6 +1,6 @@
 # When you do not manage your own time, you become a slave.
 
-***Discipline EQUALS freedom.*** LEAD. *Refuse to ever follow.* Stop caring what idiots think!
+***Discipline EQUALS freedom.*** LEAD. *Refuse to ever follow or be influenced by celebrities.* Stop caring what the follower-types think ... LEAD!
 
 Minimize your circle. Ditch victims, worriers, materialists. Refuse to ever associate with people governed by their fears. We LEAD by example; we work on the ventures, ideas and projects are within our control. Each month, throughout the year, we try to focus particularly on one area of our guru DISCIPLINE, but we use and try to strengthen each one of these areas of DISCIPLINE with every second of every day.
 
