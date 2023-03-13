@@ -4,7 +4,7 @@
 
 Your time is the ONLY asset you have in this existence. You get 86400 seconds/day. Use each second to become your own guru.
 
-As you go through the day CONTINUOUS COMPOUND the mental discipline by focusing on the NOWNESS of your time mgmt improvement.
+As you go through the day CONTINUOUS COMPOUND the mental discipline; focus on the NOWNESS of your improvement discipline.
 
 Pray without ceasing to synch your will to THE IDEAL; improve the mental focus DISCIPLINE with each second. OWN every second. 
 
