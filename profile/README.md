@@ -24,7 +24,7 @@ Stop weakening your body; remove chairs and avoid most sitting; continuously sta
 
 Never waste any energy on HATING yourself or others; learn how to FORGIVE without forgetting lessons learned from any unpleasant incidents.
 
-Never waste energy WORRYING about things out of your control. Practice minimalism. Ditch any burden that causes worry, eg give stuff away.
+Never WORRY about things out of your control. Practice minimalism. Ditch any vulnerability that causes worry, eg give stuff away.
 
 LEAD. Refuse to ever follow. Do not waste time worrying about what others think. Minimize your circle. Ditch the victims, worriers, materialists.
 
