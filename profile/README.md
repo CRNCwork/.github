@@ -10,7 +10,7 @@ Minimize your circle. Ditch victims, worriers, materialists. Refuse to ever asso
 
 3) Pray without ceasing. Synch your will to your Creator's. Focus with reverent intent to fully OWN the DISCIPLINE. 
 
-4) Your method for setting goals, planning tasks becomes entirely your design, try the 30 min time-block to start.
+4) Your method for setting goals, planning tasks becomes your day, your life. Return to basics, eg 30 min time-block.
 
 5) 30 minutes is split into a 25 min MENTAL focus, 4 min focused PHYSICAL exercise Tabata and two 30 sec readjusts.
 
