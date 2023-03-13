@@ -4,7 +4,7 @@
 
 Minimize your circle. Ditch victims, worriers, materialists. Refuse to ever associate with people governed by their fears. We LEAD by example; we work on the ventures, ideas and projects are within our control. Each month, throughout the year, we try to focus particularly on one area of our guru DISCIPLINE, but we use and try to strengthen each one of these areas of DISCIPLINE with every second of every day.
 
-1) Time is the ONLY asset we have. You get 86400 secs/day. 365 days/year. Plan each year to become your own guru.
+1) Time is the ONLY asset we have. You get 86400 secs/day, 30/31 days/month. Plan each month to become your own guru.
 
 2) Never HATE, either yourself or others. Learn to FORGIVE without forgetting lessons learned from unpleasantness.
 
