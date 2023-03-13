@@ -16,7 +16,7 @@ Each 30 minutes can be split into a 25 minute MENTAL focus, a 4 minute focused P
 
 It is NECESSARY to set aside one entire 30 minute block to the task of planning the day to optimize the strategy for the other 47 daily blocks.
 
-It is best to devote one entire 30 minute block each day to housekeeping and generally 5S-ing your work environment to set things in YOUR order.
+Devote one entire 30 minute block each day to housekeeping and generally 5S-ing your work environment to set things in YOUR order.
 
 Continuously experiment with your systems of organization and your time mgmt approach; set aside time to get ideas from life hackers.
 
