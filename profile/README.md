@@ -1,6 +1,6 @@
 # When you do not manage your own time, you become a slave.
 
-***Discipline EQUALS freedom.*** LEAD. *Refuse to ever follow.* Stop caring what idiots think! Minimize your circle. Ditch victims, worriers, materialists. Never associate with people governed by their fears. We LEAD by working on the ventures that we control. 
+***Discipline EQUALS freedom.*** LEAD. *Refuse to ever follow.* Stop caring what idiots think! Minimize your circle. Ditch victims, worriers, materialists. Refuse to ever associate with people governed by their fears. We LEAD by example; we work on the ventures, ideas and projects are within our control. 
 
 1) Your time is the ONLY asset you have in this existence. You get 86400 seconds/day. Use each second to become your own guru.
 
