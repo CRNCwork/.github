@@ -8,7 +8,7 @@ Minimize your circle. Ditch victims, worriers, materialists. Refuse to ever asso
 
 2) Never HATE, either yourself or others. Learn to FORGIVE without forgetting lessons learned from unpleasantness.
 
-3) Pray without ceasing to synch your will to THE IDEAL. Focus with intent to OWN the DISCIPLINE of every second. 
+3) Pray without ceasing to synch your will to THE IDEAL. Focus with reverent intent to fully OWN the DISCIPLINE. 
 
 4) Practically, we manage the tasks of our day with a time blocking methodology to predictably get our tasks done.
 
