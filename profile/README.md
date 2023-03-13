@@ -1,4 +1,6 @@
-Your time is the ONLY asset you have in this existence ... you get 86400 seconds/day. **You can manage your own time OR be a slave.**
+# When do do not manage your own time, you become a slave. Discipline EQUALS freedom.
+
+Your time is the ONLY asset you have in this existence. You get 86400 seconds/day. Use each second to become your own guru.
 
 As you go through the day CONTINUOUS COMPOUND the mental discipline by focusing on the NOWNESS of your time mgmt improvement.
 
