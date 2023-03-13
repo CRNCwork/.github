@@ -18,7 +18,7 @@ It is NECESSARY to set aside one entire 30 minute block to the task of planning 
 
 It is best to devote one entire 30 minute block each day to housekeeping and generally 5S-ing your work environment to set things in YOUR order.
 
-Continuously experiment with your general organizational enviroment and your time mgmt approach; set aside time to get ideas from life hackers.
+Continuously experiment with your systems of organization and your time mgmt approach; set aside time to get ideas from life hackers.
 
 How your body uses the day matters; remove chairs and avoid most sitting; continuously standing will strengthen your [musculoskeletal system](https://en.wikipedia.org/wiki/Human_musculoskeletal_system).
 
