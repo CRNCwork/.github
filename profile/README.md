@@ -1,4 +1,6 @@
-# When do do not manage your own time, you become a slave. Discipline EQUALS freedom.
+# When do do not manage your own time, you become a slave.
+
+***Discipline EQUALS freedom.***
 
 Your time is the ONLY asset you have in this existence. You get 86400 seconds/day. Use each second to become your own guru.
 
