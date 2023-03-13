@@ -14,7 +14,7 @@ Your time mgmt and method for getting tasks is entirely up to you, a time-blocki
 
 Each 30 minutes can be split into a 25 min MENTAL focus, 4 min focused PHYSICAL exercise Tabata and two 30 sec readjustments.
 
-It is NECESSARY to set aside one entire 30 minute block to the task of planning the day to optimize the strategy for the other 47 daily blocks.
+Plan with reverence; set aside one 30 min block to *sharpen the axe* or optimize the strategy for eacho other time blocks.
 
 Devote one entire 30 minute block each day to housekeeping and generally 5S-ing your work environment to set things in YOUR order.
 
