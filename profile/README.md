@@ -24,6 +24,6 @@ Minimize your circle. Ditch victims, worriers, materialists. Refuse to ever asso
 
 10) Stop weakening the body; remove chairs, avoid most sitting; continuously strengthen your [musculoskeletal system](https://en.wikipedia.org/wiki/Human_musculoskeletal_system).
 
-11) Minimalism is gratitude. Ditch all vulnerabilities causing worry. Give stuff away; don't be owned by your stuff.
+11) Minimalism = gratitude. Ditch all vulnerabilities causing worry. Give stuff away; don't rest or be owned by your stuff.
 
 12) As you go thru each day CONTINUOUS COMPOUND mental discipline; focus on the NOWNESS of improvement discipline.
