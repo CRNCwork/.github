@@ -1,30 +1,27 @@
 # When you do not manage your own time, you become a slave.
 
-***Discipline EQUALS freedom.***
+***Discipline EQUALS freedom.*** LEAD. Refuse to ever follow. Who cares what others think! Minimize your circle. Ditch the victims, worriers, materialists. Never WORRY about things out of your control. 
 
 1) Your time is the ONLY asset you have in this existence. You get 86400 seconds/day. Use each second to become your own guru.
 
 2) As you go thru the day CONTINUOUS COMPOUND the mental discipline; focus on the NOWNESS of improvement discipline.
 
-Pray without ceasing to synch your will to THE IDEAL; improve the mental focus DISCIPLINE with each second. OWN every second. 
+3) Pray without ceasing to synch your will to THE IDEAL. Focus with intent to OWN the DISCIPLINE of every second. 
 
-Practically, we usually cannot manage the tasks of our day by the second, so we pick a time blocking method to get tasks done.
+4) Practically, we manage the tasks of our day with a time blocking methodology to predictably get our tasks done.
 
-Your time mgmt and method for getting tasks is entirely up to you, a time-blocking to try for starters is the 30 minute block.
+5) Your method for getting tasks becomes entirely your design, a method to try for starters is the 30 minute block.
 
-Each 30 minutes can be split into a 25 min MENTAL focus, 4 min focused PHYSICAL exercise Tabata and two 30 sec readjustments.
+6) 30 minutes is split into a 25 min MENTAL focus, 4 min focused PHYSICAL exercise Tabata and two 30 sec readjusts.
 
-Plan with reverence; set aside one 30 min block to *sharpen the axe* or optimize the strategy for eacho other time blocks.
+7) Plan with reverence; set aside one 30 min block to *sharpen the axe* or optimize each of the other time blocks.
 
-Devote one entire 30 minute block each day to housekeeping and generally 5S-ing your work environment to set things in YOUR order.
+8) Devote one entire 30 minute block each day to housekeeping or 5S-ing your work environment; set things in order.
 
-Continuously experiment with your systems of organization and your time mgmt approach; set aside time to get ideas from life hackers.
+9) Continuously experiment with your systems of organization and time mgmt approach. Cheat; use lifehacks of others.
 
-Stop weakening your body; remove chairs and avoid most sitting; continuously standing will strengthen your [musculoskeletal system](https://en.wikipedia.org/wiki/Human_musculoskeletal_system).
+10) Stop weakening the body; remove chairs, avoid most sitting; continuously strengthen your [musculoskeletal system](https://en.wikipedia.org/wiki/Human_musculoskeletal_system).
 
-Never HATE, either yourself or others. Learn to FORGIVE without forgetting lessons learned from any unpleasant incidents.
+11) Never HATE, either yourself or others. Learn to FORGIVE without forgetting lessons learned from unpleasantness.
 
-Never WORRY about things out of your control. Practice minimalism. Ditch any vulnerability that causes worry, eg give stuff away.
-
-LEAD. Refuse to ever follow. Who cares what others think! Minimize your circle. Ditch the victims, worriers, materialists.
-
+12) Practice minimalism. Ditch any sort of vulnerability causing worry. Give stuff away; don't be owned by your stuff.
