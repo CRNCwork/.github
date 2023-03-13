@@ -12,7 +12,7 @@ Practically, we usually cannot manage the tasks of our day by the second, so we 
 
 Your time mgmt and method for getting tasks is entirely up to you, a time-blocking to try for starters is the 30 minute block.
 
-Each 30 minutes can be split into a 25 minute MENTAL focus, a 4 minute focused PHYSICAL exercise Tabata with 30 second readjustments.
+Each 30 minutes can be split into a 25 min MENTAL focus, 4 min focused PHYSICAL exercise Tabata and two 30 sec readjustments.
 
 It is NECESSARY to set aside one entire 30 minute block to the task of planning the day to optimize the strategy for the other 47 daily blocks.
 
