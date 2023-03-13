@@ -20,7 +20,7 @@ Devote one entire 30 minute block each day to housekeeping and generally 5S-ing 
 
 Continuously experiment with your systems of organization and your time mgmt approach; set aside time to get ideas from life hackers.
 
-How your body uses the day matters; remove chairs and avoid most sitting; continuously standing will strengthen your [musculoskeletal system](https://en.wikipedia.org/wiki/Human_musculoskeletal_system).
+Stop weakening your body; remove chairs and avoid most sitting; continuously standing will strengthen your [musculoskeletal system](https://en.wikipedia.org/wiki/Human_musculoskeletal_system).
 
 Never waste any energy on HATING yourself or others; learn how to FORGIVE without forgetting lessons learned from any unpleasant incidents.
 
