@@ -12,7 +12,7 @@ Minimize your circle. Ditch victims, worriers, materialists. Refuse to ever asso
 
 4) Practically, we manage the tasks of our day with a time blocking methodology to predictably get our tasks done.
 
-5) Your method for getting tasks becomes entirely your design, a method to try for starters is the 30 minute block.
+5) Your method for setting goals, planning tasks becomes entirely your design, try the 30 min time-block to start.
 
 6) 30 minutes is split into a 25 min MENTAL focus, 4 min focused PHYSICAL exercise Tabata and two 30 sec readjusts.
 
