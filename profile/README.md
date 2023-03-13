@@ -22,7 +22,7 @@ Continuously experiment with your systems of organization and your time mgmt app
 
 Stop weakening your body; remove chairs and avoid most sitting; continuously standing will strengthen your [musculoskeletal system](https://en.wikipedia.org/wiki/Human_musculoskeletal_system).
 
-Never waste any energy on HATING yourself or others; learn how to FORGIVE without forgetting lessons learned from any unpleasant incidents.
+Never HATE, either yourself or others. Learn to FORGIVE without forgetting lessons learned from any unpleasant incidents.
 
 Never WORRY about things out of your control. Practice minimalism. Ditch any vulnerability that causes worry, eg give stuff away.
 
