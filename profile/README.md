@@ -6,7 +6,7 @@ Your time is the ONLY asset you have in this existence. You get 86400 seconds/da
 
 As you go through the day CONTINUOUS COMPOUND the mental discipline by focusing on the NOWNESS of your time mgmt improvement.
 
-Discipline EQUALS freedom. OWN every second. Pray with your being to improve the mental focus DISCIPLINE for each following second to become free.
+Pray without ceasing to synch your will to THE IDEAL; improve the mental focus DISCIPLINE with each second. OWN every second. 
 
 Practically, we usually cannot manage the tasks of our day by the second, so we pick a time blocking method to get tasks done.
 
