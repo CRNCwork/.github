@@ -1,6 +1,8 @@
-Commitgraph-driven workflow, currency of reputation, proof-of-work, distributed ledgers and mechanisms like memecoins, communication improvement and 10X time mgmt 
+# CRNC.work
 
-# When you don't manage your own time and value to others, you become a slave to someone who can direct your time and interactions.
+Commitgraph-driven workflow and proof-of-work, distributed ledgers and mechanisms like memecoins to reinforce good habits with the currency of reputation and communication improvement for 10X-er time mgmt 
+
+***When you don't manage your own time and value to others, you become a slave to someone who can direct your time and interactions.***
 
 LEAD. *Refuse to ever follow or be influenced by celebrities.* Stop caring what the follower-types think! LEAD! ***Discipline EQUALS freedom.*** 
 
