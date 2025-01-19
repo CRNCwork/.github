@@ -1,4 +1,6 @@
-# When you don't manage your own time, you become a slave.
+Commitgraph-driven workflow, currency of reputation, proof-of-work, distributed ledgers and mechanisms like memecoins, communication improvement and 10X time mgmt 
+
+# When you don't manage your own time and value to others, you become a slave to someone who can direct your time and interactions.
 
 LEAD. *Refuse to ever follow or be influenced by celebrities.* Stop caring what the follower-types think! LEAD! ***Discipline EQUALS freedom.*** 
 
